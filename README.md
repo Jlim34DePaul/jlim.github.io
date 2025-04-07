@@ -1,3 +1,3 @@
-# jlim.github.io
+# Welcome to Juli's Page
 
 Juli Lim
